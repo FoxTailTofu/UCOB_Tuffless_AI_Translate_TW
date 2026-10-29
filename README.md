@@ -1,0 +1,1 @@
+[This is just an AI translated document of UCOB guide from Tuffless, all the credits goes there](https://ffxiv.tuufless.com/elemental/ucob/)
